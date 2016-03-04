@@ -1,0 +1,1 @@
+Ramelato's Pizza was founded in 2013 when Josefa Mthombeni bought over a struggling Pizzeria. He had a vision to provide the best quality product at the lowest price. Our goal today is still to be the best value for money in the industry. Many have tried to imitate our concept but few have succeeded. We truly believe that we are the Best Pizza and offer the Best Value.
